@@ -1,6 +1,4 @@
 # Yoonfont-Poorstory
-Yoondesign is a professional design group dedicated to the exploration and creation of relationships between font designs, brands, and contents, based on extensive experience and research.
-
 
 There is a shyly written my story. Whenever I see you, my
 heart is beating. Poorstory font is designed palpitating heart as very cute and
